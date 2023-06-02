@@ -1,9 +1,1 @@
-Template for the Read the Docs tutorial
-=======================================
-
-This GitHub template includes fictional Python library
-with some basic Sphinx docs.
-
-Read the tutorial here:
-
-https://docs.readthedocs.io/en/stable/tutorial/
+Agen sbobet euro 2024 merupakan bandar bola online terbaru yang akan menawarkan kepada bettor dengan pasaran terlengkap di dunia saat ini. Para bettor dapat melakukan deposit hanya dengan 10rb rupiah saja. Agen sbobet euro 2024 dipercayakan oleh sbobet sebagai agen judi bola online untuk mempermudah para bettor Indonesia untuk melakukan taruhan judi bola online. 
